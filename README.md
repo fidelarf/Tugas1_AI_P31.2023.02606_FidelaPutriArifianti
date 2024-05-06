@@ -1,0 +1,2 @@
+# Tugas1_AI_P31.2023.02606_FidelaPutriArifianti
+Tugas1_AI_P31.2023.02606_FidelaPutriArifianti
